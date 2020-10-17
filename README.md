@@ -1,1 +1,1 @@
-# Przyk-adowy-Projekt
+# Repozytorium
